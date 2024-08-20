@@ -16,4 +16,6 @@
 *-2 years form now*
 *-5 years from now*
 
+*-2 years form now* I Would have like to completed my Solutions Architect qualification and would have moved from a cloud engineer role to a Solutions architect role
+*-5 years from now* Become a senior solutions architect earning six figures.
 
